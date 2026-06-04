@@ -1,4 +1,4 @@
-
+updated Script for murderers vs sheriffs 2 offers the most advanced murderers vs sheriffs 2 Script, with invisibility and instant win. Perfect for
 
 
 
